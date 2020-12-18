@@ -19,8 +19,8 @@ Green Planet Apothecary- WOW! This site has everything! Which is good and bad. T
 Love Your Mother Apothecary - This one is a perfect example of a URL that is way too long. Looks like the website isn’t quite finished yet, or under construction. The name is very humorous and catchy though.
 7 Feathers Apothecary- This site is absolutely beautiful upon entering, featuring a pop-out form (perfect to gather data) and give the customer something invaluable to them in return. This is a great way to build credit with new customers when they land on your site. 
 Runs with Wolves Apothecary- This site is set up well! The name is super catchy and marketable. Their call to action set up is pretty cool. The colors are very calming and the photos on the site are very easy on the eyes! 
-4. References
-globalreach.com
+ References:
+https://globalreach.com/
 https://custombotanicaldispensary.com/
 https://www.greenplanetapothecary.com/
 https://love-your-mother-apothecary.business.site/?utm_source=gmb&utm_medium=referral 
